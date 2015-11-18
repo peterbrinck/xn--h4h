@@ -1,2 +1,2 @@
 # xn--h4h
-http://☠☠.ws/
+<a href="http://☠☠.ws/">http://☠☠.ws/</a>
